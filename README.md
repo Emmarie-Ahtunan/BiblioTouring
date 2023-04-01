@@ -8,4 +8,4 @@ But beware! You will have to search for the books in a library that is organized
 
 As you progress through the game, you will learn about the different libraries around the world and the unique ways they are organized. You will also learn about the different books that have been written about different locations. This will help you not only improve your geography knowledge but also your knowledge of literature and history.
 
-So why wait? Start playing Geo Library today and test your knowledge of geography and literature!
+So why wait? Start playing BiblioTouring today and test your knowledge of geography and literature!
